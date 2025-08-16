@@ -4,7 +4,7 @@
 <p align="center">
 
 <p align="center">
-  <img src="https://i.ibb.co/KjRLPBLc/a-puppeh.gif"/>
+  <img src="https://i.pinimg.com/736x/59/a9/03/59a90388460a3c70d0d4a3654afa05f3.jpg"/>
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(ㅤㅤdog art by andewitt_art on twtㅤㅤ!ㅤㅤ)
