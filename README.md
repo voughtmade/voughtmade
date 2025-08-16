@@ -7,4 +7,4 @@
   <img src="https://i.ibb.co/KjRLPBLc/a-puppeh.gif"/>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(ㅤㅤdog art by andewitt_art on twtㅤㅤ!ㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(ㅤㅤdog art by andewitt_art on twtㅤㅤ!ㅤㅤ)
