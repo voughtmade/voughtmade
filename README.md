@@ -1,6 +1,6 @@
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=mewkiaa&color=black&base=1000&style=flat&label=watchers" />⠀
+<img src="https://komarev.com/ghpvc/?username=mewkiaa&color=000000&base=1000&style=flat&label=watchers" />⠀
 <p align="center">
 
 <p align="center">
